@@ -6,5 +6,5 @@
 - 💞️ Trabalho como fiel de armazém e procuro por uma oportunidade de trabalhar com programação e entrar em um grande projecto.
 - 📫 youtube: https://www.youtube.com/@ManuelFrederico-wp7iu
 - Meu facebook: Manuel Frederico
-- pagina: fredbeat.wuaze.com
+- pagina: https://fredbeat.wuaze.com
 
